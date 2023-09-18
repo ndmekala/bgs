@@ -10,4 +10,4 @@ Thanks to
 
 - [Jael Coon](https://unsplash.com/@jaelphotos) - spring
 - [Annie Spratt](https://www.anniespratt.com/) - summer
-- [Hans Isaacson](https://www.hansisaacson.com/) - fall
+- [Etienne Delorieux](https://unsplash.com/@etiennedelorieux) - fall
